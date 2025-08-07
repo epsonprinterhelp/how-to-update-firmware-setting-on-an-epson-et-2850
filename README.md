@@ -1,0 +1,1 @@
+# how-to-update-firmware-setting-on-an-epson-et-2850
